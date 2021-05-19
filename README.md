@@ -1,1 +1,0 @@
-# ardemofr6dv
